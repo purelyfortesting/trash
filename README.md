@@ -1,1 +1,1 @@
-This is trash.
+This is offensive trash.
